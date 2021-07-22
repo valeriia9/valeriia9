@@ -10,3 +10,7 @@ https://valeriia9.github.io/
 
 https://www.behance.net/valeriiak0723
 
+Email: valeriiakovalova9@gmail.com
+
+
+
